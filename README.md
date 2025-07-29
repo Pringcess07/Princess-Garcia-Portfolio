@@ -40,7 +40,7 @@ A versatile administrative professional with experience in customer service, ope
 
 ### **Customer Service Representative**  
 **PRM Data Quest Corporation**  
-📅 February 2022 – December 2024  
+📅 October 2017-December 2017
 - Analyzed and validated AI training data, ensuring high quality and accuracy.
 
 ---
